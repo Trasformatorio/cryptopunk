@@ -16,3 +16,4 @@ for info: crypto@trasformatorio.net
 
 (*) We shall define the partnerships
 
+- http://www.trasformatorio.net  is a lab and a no profit foundation that promotes open culture initiatives, social and technological engagement, community making and dialogue
