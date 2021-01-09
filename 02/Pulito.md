@@ -21,7 +21,7 @@ Quella sera dieci anni prima, nel *Roodetopper*, un bar di Amsterdam sedevano tr
 Qualcuno di loro tre si lamento' ancora che il capitale continuasse a rubare le parole all'avanguardia e a metterci sopra il copyright. Era una guerra semantica che andava avanti dai primi del
 ´900. Come fermarla? 
 
-Qualcuno, forse Rob, racconto' di aver sentito parlare un marketing manager di CISCO in cerca di clienti dell´anima della citta´. 
+Qualcuno, forse Lana, racconto' di aver sentito parlare un marketing manager di CISCO in cerca di clienti dell´anima della citta´. 
 
 Diceva ¨we have not to worry about the smartness of the city, but about her soul¨.
 
@@ -53,3 +53,4 @@ E a pensare a come si sbracciavano quelli fuori dal gioco per cercare di insegui
 Ora lui era li, accucciato sotto a un traliccio a Caracas, in una notte di fine anno tiepida e dinoccolata. Erano anni che non codava, non possedeva piu' un computer, si muoveva da un rifugio all´altro pagando in schegge di conoscenza antica giovani hackers curiosi delle sue storie di veterano.
 
 Una vita complicata. Eppure si ritagliava ancora con piacere quei momenti per se, in cui defecare all'aperto, guardando le stelle, e usando a mo di sasso lo scheletro liscio di un vecchio iphone nero per pulirsi il culo.
+

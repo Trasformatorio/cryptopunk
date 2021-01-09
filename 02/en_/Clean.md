@@ -52,3 +52,4 @@ Now he was there, crouched under a trellis in Caracas, on a warm, slouching New 
 A complicated life. 
 
 Yet she still happily carved out those moments for himself, in which to defecate outdoors, looking at the stars, and using the smooth skeleton of an old black iPhone as a stone, to wipe his ass.
+
