@@ -11,8 +11,9 @@ draft by fredd jan 6 2021
 - by crypto we mean it "at large". Secretive, cospirative, social, cultural stories that have an element of the future of our society might fit, if is science fiction
 - The call will be translated and distributed in all possible languadges and channels, to promote multilinguism and get stories from unlikely perspectives enriching the narrative
 
-for info: crypto@trasformatorio.net
-
+for submissions: crypto@trasformatorio.net
+if **you feel like you want to be part** of the operation...
+write as well, this is not a project, is a flow!
 
 (*) We shall define the partnerships
 
